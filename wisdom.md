@@ -54,7 +54,7 @@ Some introductory thoughts on the wisdom.
 
 ## The Wisdom So Far
 
-- Sometimes, an email is just a way to say, “I love you.”
+- Sometimes, a West Elm Caleb is just a way to say, “I love you.”
 - People think about you much less than you either hope or fear.
 - It’s often easier not to be terrible.
 - Whenever you’re not sure what to say, either say nothing, or ask a question.
